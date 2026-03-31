@@ -9,4 +9,4 @@ If you'd like to reach out, these are my socials:
 - Telegram: [@tvoklov](https://t.me/tvoklov)  
 
 I am available for hire!
-You can use either of the above socials to DM me for my LinkedIn information.
+You can use either of the above socials to DM me for my LinkedIn information, or contact me with my gmail address (also tvoklov).
