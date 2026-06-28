@@ -4,9 +4,4 @@ I am a programmer with over 6 years of enterprise experience. I mainly focus on 
 
 Outside of everything CS, I like reading and writing, playing video games, acquiring seemingly random skills, and taking walks with my dog.
 
-If you'd like to reach out, these are my socials:  
-- Twitter: [@tvoklov](https://twitter.com/tvoklov)  
-- Telegram: [@tvoklov](https://t.me/tvoklov)  
-
-I am available for hire!
-You can use either of the above socials to DM me for my LinkedIn information, or contact me with my gmail address (also tvoklov).
+If you have an interesting project idea or an open position that matches my skills - reach out!
